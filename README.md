@@ -1,6 +1,9 @@
 # Marie's Github
 
-nothing special LMAO, shitty Minecraft projects (and redundant prs too!)
+nothing special LMAO, rhythm gamer, minecraft player
+
+### pronouns: fae/them
+dont enjoy neopronouns or they/them pronouns? dont talk to me then, so you dont have to use them. simple as fuck.
 
 [quiltmc](https://quiltmc.org/) moderator 
 
